@@ -28,7 +28,6 @@ aesthetics.
 **Figurative Elements (if applicable):**
 - If characters or humanoid figures are included, they must adhere to Safe for
   Work (SFW) guidelines.
-- Please refrain from depicting anthropomorphic foxes.
 
 ---
 
